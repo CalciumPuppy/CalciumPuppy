@@ -35,7 +35,9 @@
 
     　  　 ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
 
-꒰ 🪭 ꒱   　All Messages Are Heavily Appreciated ! 
+꒰ ![1000005060](https://github.com/user-attachments/assets/40183722-9f7a-4a93-8895-110ab3ca9e99)
+ ꒱ 　All Messages Are Heavily Appreciated ! ![1000005059](https://github.com/user-attachments/assets/404cbf72-50ee-471e-b96b-46869d2e8273)
+
 
   ![1000004876](https://github.com/user-attachments/assets/a75aea14-3157-4404-b957-2eabad75d301) 　my kny __[oc](https://tsukihanaaomi.straw.page)__!!   <img width="97" height="54" alt="1000004838" src="https://github.com/user-attachments/assets/641f82c7-0a8e-4ad8-a076-2a7589dd0b56" />
 

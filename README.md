@@ -14,8 +14,7 @@
         
 
 
- ![1000004875](https://github.com/user-attachments/assets/0f8654ea-87b8-42e1-b555-1bb60ebf5674)　![1000003912](https://github.com/user-attachments/assets/0297fab9-ae4f-405a-bd9e-6c90512fc108)
-ᛝ __They__ 𝜗 **Any** ᛝ![1000003912](https://github.com/user-attachments/assets/6ed3e34c-ae33-490e-8746-8319f2b59352) ![1000004873](https://github.com/user-attachments/assets/a6794ac4-82c8-4f40-bbb2-0572933410f1)
+  　![1000004874](https://github.com/user-attachments/assets/2a41fa78-4575-40ea-babd-bcffe9dc9623) ᛝ __They__ 𝜗 **Any** ᛝ![1000003912](https://github.com/user-attachments/assets/6ed3e34c-ae33-490e-8746-8319f2b59352) ![1000004873](https://github.com/user-attachments/assets/a6794ac4-82c8-4f40-bbb2-0572933410f1)
 
 
 
@@ -34,7 +33,7 @@
 <img width="1080" height="138" alt="1000004878" src="https://github.com/user-attachments/assets/42d54ccb-9157-43e9-9f9e-80143fa8a1cd" />
 
 
-    　 [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ 𝙨𝙩𝙧𝙖𝙬𝙥𝙖𝙜𝙚 WIP
+    　  　 ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
 
 ꒰ 🪭 ꒱   　All Messages Are Heavily Appreciated ! 
 
@@ -42,6 +41,9 @@
 
 
 ![1000005058](https://github.com/user-attachments/assets/f87a4452-ff3a-459c-8cfd-5e2f1d06b7d0)
+
+
+
 
 
 

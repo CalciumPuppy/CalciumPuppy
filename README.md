@@ -1,5 +1,7 @@
 
-<img width="2048" height="273" alt="1000003904" src="https://github.com/user-attachments/assets/4a8df680-f04c-4112-a477-a36673f2c522" />
+![1000005058](https://github.com/user-attachments/assets/d47b676f-fd17-426b-8b6e-5acc3e1496dc)
+
+
 
 <img width="736" height="414" alt="1000003908" src="https://github.com/user-attachments/assets/82c4260e-dc2c-4c4e-990e-fe6d95fd84a0" />
 
@@ -8,7 +10,7 @@
 
     　 
         
-   　　 ![1000003910](https://github.com/user-attachments/assets/c795f26a-7865-412f-abfb-8af063002f43) __Clementine__ ᵒʳ __𝘊𝘩𝘪𝘴𝘩𝘪𝘺𝘢__ ![1000003911](https://github.com/user-attachments/assets/ce8cd150-bb30-440f-95da-1f3d8245d805)
+   　　   ![1000003910](https://github.com/user-attachments/assets/c795f26a-7865-412f-abfb-8af063002f43) __Clementine__ ᵒʳ __𝘊𝘩𝘪𝘴𝘩𝘪𝘺𝘢__ ![1000003911](https://github.com/user-attachments/assets/ce8cd150-bb30-440f-95da-1f3d8245d805)
         
 
 
@@ -39,7 +41,8 @@
   ![1000004876](https://github.com/user-attachments/assets/a75aea14-3157-4404-b957-2eabad75d301) 　my kny __[oc](https://tsukihanaaomi.straw.page)__!!   <img width="97" height="54" alt="1000004838" src="https://github.com/user-attachments/assets/641f82c7-0a8e-4ad8-a076-2a7589dd0b56" />
 
 
-<img width="2048" height="273" alt="1000003909" src="https://github.com/user-attachments/assets/478112da-7377-4981-97f6-7d396f008038" />
+![1000005058](https://github.com/user-attachments/assets/f87a4452-ff3a-459c-8cfd-5e2f1d06b7d0)
+
 
 
 

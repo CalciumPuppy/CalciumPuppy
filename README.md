@@ -45,7 +45,7 @@
 <img width="1080" height="138" alt="1000004878" src="https://github.com/user-attachments/assets/42d54ccb-9157-43e9-9f9e-80143fa8a1cd" />
 
 
-    　  　 ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
+    　![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)  [𝙖𝙩𝙖𝙗𝙤𝙤𝙠](https://cheshirecatful.atabook.org/) ✦︎ [𝙧𝙚𝙣𝙩𝙧𝙮](https://rentry.co/cheshirecatful) ✦︎ [StrawPage](https://calciumpuppy.straw.page) ![1000004868](https://github.com/user-attachments/assets/9473c6fb-c336-4bdf-ad36-fd6b9efa313f)
 
 ꒰ ![1000005060](https://github.com/user-attachments/assets/40183722-9f7a-4a93-8895-110ab3ca9e99)
  ꒱ 　All Messages Are Heavily Appreciated ! ![1000005059](https://github.com/user-attachments/assets/404cbf72-50ee-471e-b96b-46869d2e8273)

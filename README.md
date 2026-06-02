@@ -39,7 +39,7 @@
 
  
 ⤿  　ɪ'ᴍ Socially ᴀᴡᴋᴡᴀʀᴅ And ꜱᴜᴄᴋ At ꜱᴏᴄɪᴀʟɪᴢɪɴɢ But ɪ'ᴍ Trying ᴍʏ Best ᴛᴏ Fix On ᴛʜᴀᴛ !
-⤿  　THE Finx, Knocker AND Larry & Lawrie Yume!!
+⤿  　THE Finx, Knocker, Ethan AND Larry & Lawrie Yume!!
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color_cover=false&bar_color=53b14f)](https://spotify-github-profile.kittinanx.com/api/view?uid=31lroerkaedbcos3oc4su6kuf5uq&redirect=true)
 
